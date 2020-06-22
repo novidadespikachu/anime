@@ -2,8 +2,26 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
 
-# Aguardem
-<img src="https://media.giphy.com/media/slVWEctHZKvWU/giphy.gif" alt="pikachu">
+# segunda-feira, 22 de junho de 2020
+<table style="width:100%"><tr><th><center><b> Area de animes recheadas de conteudos para os amantes da cultura japonesa - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Animes/Anime%20(1).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
+
+<table style="width:100%"><tr><th><center><b> Saga DragonBall completa no Pikachu! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Animes/Anime%20(2).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
+
+<table style="width:100%"><tr><th><center><b> Area de animes recheadas de conteudos para os amantes da cultura japonesa - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Animes/Anime%20(3).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
+
+<table style="width:100%"><tr><th><center><b> Sagas do Cavaleiros do Zodiáco completas no addon Pikachu, venha relembrar desse clássico! - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Animes/Anime%20(4).png" alt="Addon Pikachu"></div></td></tr>
+</table>
+
 
 <a href="https://bit.ly/pikachufull">
 <img src="https://tinyurl.com/y9zk36eq" alt="pikachu">
